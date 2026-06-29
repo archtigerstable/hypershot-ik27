@@ -1,4 +1,4 @@
-
+updated Script for hypershot is the best hypershot Script, featuring no clip and auto-farm. Safe and powerful for all your needs.
 
 
 
